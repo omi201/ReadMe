@@ -4,6 +4,8 @@
 - 💬 Ask me about **Information Security**
 
 - 📫 How to reach me **desaisaumya2010@gmail.com**
+  
+- View my Resume 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
