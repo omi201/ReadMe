@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **desaisaumya2010@gmail.com**
   
-- View my Resume  **https://github.com/omi201/Resume/blob/main/Saumya_Resume.pdf**
+- View my Resume  **https://github.com/omi201/Resume/blob/main/Saumya-Resume.pdf**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
